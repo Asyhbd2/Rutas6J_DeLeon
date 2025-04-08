@@ -2,8 +2,10 @@
 
 ![image](https://github.com/user-attachments/assets/499588cf-3898-445f-a409-a2a6fbce0e37)
 -Pantalla 2:
+
 ![image](https://github.com/user-attachments/assets/8da05267-d3d0-47ea-b4bf-e1193a0253b9)
 -Pantalla 3:
+
 ![image](https://github.com/user-attachments/assets/abe3e8d2-7cfb-42db-a260-5ee59b1231fe)
 
 
